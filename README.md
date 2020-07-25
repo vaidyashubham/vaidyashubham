@@ -11,4 +11,3 @@ Here are some ideas to get you started:
 - 📫 How to reach me: [MyPortfolio](https://shubhamvaidya.netlify.app/)
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: I do lot of things. If you want to know, follow me 😄!
--->
